@@ -1,1 +1,1 @@
-# cod-tools - use these tools to max your bank or have fun with idfk
+# cod-tools - some of this stuff is completely random so have fun with it somehow.
